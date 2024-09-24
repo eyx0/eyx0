@@ -13,4 +13,4 @@ skins i use
 ![](https://i.imgur.com/ufMXY1K.jpeg)# 
 
 # [yes i put this on here](https://eyx.s-ul.eu/nsoWRzao)
-![](https://i.imgur.com/bdKyzUg.jpeg)
+![](https://i.imgur.com/bdKyzUg.jpeg)haha

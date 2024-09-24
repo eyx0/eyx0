@@ -10,4 +10,7 @@ skins i use
 ![](https://i.imgur.com/602QQEE.jpeg)
 
 # [az1949](https://eyx.s-ul.eu/sd74QJEd)
-![](https://i.imgur.com/ufMXY1K.jpeg)
+![](https://i.imgur.com/ufMXY1K.jpeg)# 
+
+# [yes i put this on here](https://eyx.s-ul.eu/nsoWRzao)
+![](https://i.imgur.com/bdKyzUg.jpeg)

@@ -6,5 +6,5 @@ skins i use
 # [aristia l0l](https://eyx.s-ul.eu/mjBd9HCq)
 ![](https://i.imgur.com/tj54ph8.jpeg)
  
-# [aspen something something](https://i.imgur.com/602QQEE.jpeg)
+# [aspen something](https://i.imgur.com/602QQEE.jpeg)
 ![](https://eyx.s-ul.eu/pC1f09Yq)

@@ -27,5 +27,6 @@ skins i use
 # [nomod](https://eyx.s-ul.eu/U1NmFcfW)
 ![](https://i.imgur.com/TclQAxX.jpeg)
 
-# [for rin(whos that?)](https://eyx.s-ul.eu/W7G3LCkU)
+# [for rin](https://eyx.s-ul.eu/W7G3LCkU)
 ![](https://i.imgur.com/YqoohnF.jpeg)
+i wonder who rin is

@@ -23,3 +23,6 @@ skins i use
 
 # [boring ikanyai edit](https://eyx.s-ul.eu/SPMZTWqD)
 ![](https://i.imgur.com/gSfsvAJ.jpeg)
+
+# [nomod](https://eyx.s-ul.eu/SPMZTWqD)
+![](https://i.imgur.com/TclQAxX.jpeg)

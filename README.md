@@ -20,3 +20,6 @@ skins i use
 
 # [giyokon but rafis](https://eyx.s-ul.eu/S7OR0ukO)
 ![](https://i.imgur.com/uLgWIYu.jpeg)
+
+# [boring ikanyai edit](https://eyx.s-ul.eu/SPMZTWqD)
+![](https://i.imgur.com/gSfsvAJ.jpeg)

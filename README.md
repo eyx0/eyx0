@@ -30,3 +30,6 @@ skins i use
 # [for rin](https://eyx.s-ul.eu/W7G3LCkU)
 ![](https://i.imgur.com/YqoohnF.jpeg)
 i wonder who rin is
+
+# [vv edit](https://files.catbox.moe/5rvlwm.osk)
+![](https://i.imgur.com/1HJfBov.jpeg)
